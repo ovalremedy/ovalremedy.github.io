@@ -1,1 +1,0 @@
-# ovalremedy.github.io
